@@ -10,4 +10,3 @@ Ces contributeurs sont :
     - Cristina L
     - Naomi S (atewdrew)
     - Clément S
-Tout droit réservé
